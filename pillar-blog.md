@@ -15,5 +15,5 @@ Looking for the best salon in Narsipatnam? Radiance Salon offers professional gr
 ## Conclusion
 Visit Radiance Salon today.
 
-📞 Call: +91 XXXXXXXX  
+📞 Call: +91 9876543210 
 📍 Narsipatnam  
